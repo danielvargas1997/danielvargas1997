@@ -42,7 +42,7 @@
 ## 📫 Contact Me
 - **Email:** danielvargas1997@gmail.com  
 - **GitHub:** [github.com/danielvargas1997](https://github.com/danielvargas1997)  
-- **LinkedIn:** *Coming soon*
+- **LinkedIn:** (www.linkedin.com/in/daniel-alejandro-vargas-uzuriaga-6ba715242)
 
 ---
 
