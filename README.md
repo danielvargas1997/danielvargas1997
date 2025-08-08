@@ -40,9 +40,9 @@
 ---
 
 ## 📫 Contact Me
-- **Email:** danielvargas1997@gmail.com  
+- **Email:** danielalejandrov97@gmail.com  
 - **GitHub:** [github.com/danielvargas1997](https://github.com/danielvargas1997)  
-- **LinkedIn:** (www.linkedin.com/in/daniel-alejandro-vargas-uzuriaga-6ba715242)
+- **LinkedIn:** www.linkedin.com/in/daniel-alejandro-vargas-uzuriaga-6ba715242
 
 ---
 
